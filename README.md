@@ -10,7 +10,7 @@
 * **🧠 Strengthening expertise in Data Structures, Algorithms, System Design, and Software Engineering**
 * **🚀 Building and experimenting with AI-powered applications and developer tools**
 
-* 📫 joshruben16@gmail.com
+* 📫 prsdhxolo@gmail.com
   
 ## 🔗 Languages and Tools:
 
